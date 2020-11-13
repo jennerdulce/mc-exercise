@@ -7,3 +7,6 @@
 
 
 "Ted and Alice are cooler like a popsicle with sunglasses".
+
+"We're all in this together and it shows we stand hand and hand"
+"MAKE OUR DREAMS COME TRUE"
